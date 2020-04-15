@@ -11,6 +11,3 @@
 4. PUNTO FIJO
 
 
-
-
-*Creditos para Sergio Rodriguez y Sandy Atencio que es mi inspiración*
